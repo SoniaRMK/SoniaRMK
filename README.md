@@ -1,6 +1,6 @@
 # 💫About Me :
 
-💬 Ask me about Web development
+💬 Ask me about Web development | Frontend Development | UI/UX
 
 📫 How to reach me: soniakxxx@gmail.com
 
