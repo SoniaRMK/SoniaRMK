@@ -2,7 +2,7 @@
 
 💬 Ask me about Web development | Frontend Development | UI/UX
 
-📫 How to reach me: soniakxxx@gmail.com
+📫 How to reach me: karungisrm@gmail.com
 
 😄 Pronouns: She/Her
 
